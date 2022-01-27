@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @sadboysdev, creator of the SADBOYS NFT collection 
+- SADBOYS is a NFT project constructed and designed around a fighting game where you compete against other SADBOYS owners, staking crypto for a return on winning.
+- What are you waiting for? Obtain a SADBOYS NFT and participate in a new, exciting, and growing community.
